@@ -1,1 +1,1 @@
-# village-life.biz
+# https://village-life.biz
